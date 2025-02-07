@@ -1,0 +1,3 @@
+# strategy
+
+Situation front good.
