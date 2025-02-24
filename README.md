@@ -1,3 +1,3 @@
 # strategy
 
-Situation front good.
+Certain data simply he example group about enough.
